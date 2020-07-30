@@ -26,11 +26,11 @@ His answer was: -&quot;We gonna find a date for you.&quot;
 
 I was just standing thinking, that could be an interesting date filming me making coffee. I might just make and advert for it:
 <p style="text-align: center">
-&quot; **!Looking for a date!</br>**
+&quot; **!Looking for a date!<br>**
 
-preferably women, age between 18 –99 (_even lego didn&#39;t recommended over 99_)</br>
+preferably women, age between 18 –99 (_even lego didn&#39;t recommended over 99_)<br>
 
-Camera skills are not mandatory, but massive extra points if you have it.</br>
+Camera skills are not mandatory, but massive extra points if you have it.<br>
 
 Please send an e-mail with your CV to the link.&quot;
 </p >
