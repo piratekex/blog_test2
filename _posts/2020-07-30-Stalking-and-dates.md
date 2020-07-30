@@ -6,15 +6,15 @@ title: "Stalking and dates"
 ---
 
 
-I thought for my first post I will start with a new very recent story. I am working in a coffee shop, I love it, but there is covid-19 so we were just chilling at home for the past 5 months. I&#39;m a person who loves working, I can&#39;t really understand people to be honest, that is why I love working that won&#39;t change. Sometimes I try to have friends, but I always end up with awkward situations.
+<p>I thought for my first post I will start with a new very recent story. I am working in a coffee shop, I love it, but there is covid-19 so we were just chilling at home for the past 5 months. I&#39;m a person who loves working, I can&#39;t really understand people to be honest, that is why I love working that won&#39;t change. Sometimes I try to have friends, but I always end up with awkward situations.</p>
 
-For example, if someone knows you, and you might have depression and just got bad news. You might end up drinking in a bar, just to get over it, didn&#39;t notice the people around you, because your eyes are crap now.
+<p>For example, if someone knows you, and you might have depression and just got bad news. You might end up drinking in a bar, just to get over it, didn&#39;t notice the people around you, because your eyes are crap now.</p>
 
-So you have your drinks, and decide to go home, feeling unwell, walking around the area without a destination. Well you have to be careful with that because you might get just labelled as a stalker for a lifetime.
+<p>So you have your drinks, and decide to go home, feeling unwell, walking around the area without a destination. Well you have to be careful with that because you might get just labelled as a stalker for a lifetime.</p>
 
-Anyway, my point is I love working, but our shop is located in another shop, so we can&#39;t open yet, but someone from our company found a video, where a man was making latte art by pouring the milk out of a bottle.
+<p>Anyway, my point is I love working, but our shop is located in another shop, so we can&#39;t open yet, but someone from our company found a video, where a man was making latte art by pouring the milk out of a bottle.</p>
 
-We got the challange to do the same, I am at home so I don&#39;t have any special equipment, and I made a deal: if I can make it, I can have a pop up coffee stand.
+<p>We got the challange to do the same, I am at home so I don&#39;t have any special equipment, and I made a deal: if I can make it, I can have a pop up coffee stand.</p>
 
 Great, but I need video evidence of it. Absolutely no problem. I just got a new hobby in the past 5 months which is video editing. My recording skills are not good, but I am working on it.
 
