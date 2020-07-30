@@ -25,7 +25,7 @@ Well it didn&#39;t work out, so I asked my friend to help me record the video.
 His answer was: -&quot;We gonna find a date for you.&quot;
 
 I was just standing thinking, that could be an interesting date filming me making coffee. I might just make and advert for it:
->
+
 <p style="text-align: center">
 &quot; <b>!Looking for a date!</b><br>
 
@@ -35,7 +35,7 @@ Camera skills are not mandatory, but massive extra points if you have it.<br>
 
 Please send an e-mail with your CV to the link.&quot;
 </p >
->
+
 Thankfully it is looks like we will reopen soon, so I no longer need the video, but I am not sure if should I inform my frined or not, he is so excited to find me a date...
 
 … I am a bit worried, I might have to make a movie, that is gonna be the new star wars. I am not saving on effects, I am saving on camera crew.
