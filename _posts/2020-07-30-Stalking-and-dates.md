@@ -50,16 +50,16 @@ His answer was: -”We gonna find a date for you.”
 I was just standing thinking, that could be an interesting date filming me making coffee. I might just make and advert for it:
 </p>
 
-
+<br>
 <p style="text-align: center,">
 
-  “<b>!Looking for a date!</b>
-    preferably women, age between 18 –99 (<i>even lego didn’t recommended over 99</i>)
+  “ <b>!Looking for a date!</b>
+    preferably women, age between 18 –99 ( <i>even lego didn’t recommended over 99</i> )
     Camera skills are not mandatory, but massive extra points if you have it.
     Please send an e-mail with your CV to the link.”
 
 </p>
-
+<br>
 <p>
 Thankfully it is looks like we will reopen soon, so I no longer need the video, but I am not sure if should I inform my frined or not, he is so excited to find me a date...
 </p>
