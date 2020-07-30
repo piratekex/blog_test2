@@ -23,6 +23,7 @@ icon: /assets/images/icon-512.png
 twitter_username: piratekex
 github_username:  piratekex
 hide_credits: true
+hide_search: true
 
 # Build settings
 markdown: kramdown
