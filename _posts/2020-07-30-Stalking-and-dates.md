@@ -27,11 +27,11 @@ I was just standing thinking, that could be an interesting date filming me makin
 
 > “ **!Looking for a date!** 
 >
-> preferably women, age between 18 –99 (*even lego didn’t recommended over 99*) 
+>preferably women, age between 18 –99 (*even lego didn’t recommended over 99*) 
 >	
-> Camera skills are not mandatory, but massive extra points if you have it. 
+>Camera skills are not mandatory, but massive extra points if you have it. 
 >
-> Please send an e-mail with your CV to the link.”
+>Please send an e-mail with your CV to the link.”
 
 		
 Thankfully it is looks like we will reopen soon, so I no longer need the video, but I am not sure if should I inform my frined or not, he is so excited to find me a date...
